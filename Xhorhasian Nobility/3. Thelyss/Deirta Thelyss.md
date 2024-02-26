@@ -1,0 +1,2 @@
+[[3. Den - Thelyss]]
+Deirta Thelyss is an Umavi, a "perfect soul" revered in the Kryn Dynasty, and the leader of Den Thelyss of Rosohna, one of the Dynasty's three ruling Dens. Under her guidance, Den Thelyss wishes to see the Dynasty established within the world and respected by others. Deirta is the mother of Essek Thelyss and Verin Thelyss. Matthew Mercer described her as "deeply steeped" in Dynasty culture.

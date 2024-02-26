@@ -1,0 +1,4 @@
+[[9. Den - Daev'yana]]
+Zyn was born in the Coronas of [Rosohna](https://criticalrole.fandom.com/wiki/Rosohna "Rosohna"). He grew up in poverty, and during his lowest point, Lolth contacted him. Under the Spider Queen's influence, Zyn refined himself, gaining a better reputation at the same time he developed a talent for lying. He was eventually found by Den Daev'yana, being accepted into it.
+
+By 835 PD, Zyn has socially risen, being a valued strategist and writer for his den. However, his position allows him to sow discord and doubt among the noble families, while privately communing with the Spider Queen as one of her trusted operatives.
